@@ -1,1 +1,1 @@
-### Estudo Engenharia de Automação na Furg
+### Estudande de Engenharia de Automação matriculado na FURG
